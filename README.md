@@ -1,4 +1,4 @@
-# Гоман Кирилл ЭФБО-02-22
+# Островский Кирилл Владимирович ЭФБО-07-22
 
 ![image](https://github.com/user-attachments/assets/c5f18d3b-7262-43a1-86cd-9767dc0a750b)
 
